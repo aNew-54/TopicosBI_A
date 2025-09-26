@@ -2,7 +2,7 @@
 ***Alumno**: Alfaro Urtecho Brayam Esmith*
 
 ## Lenguaje de Programación
-- Python UwU
+- Python UwU uwuwuwuw
 
 ###
-Derechos reservados ® Brayam Esmith Alfaro Urtecho
+Derechos reservados ®*Brayam Esmith Alfaro Urtecho*
